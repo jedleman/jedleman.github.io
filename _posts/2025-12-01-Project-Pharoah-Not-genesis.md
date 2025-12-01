@@ -1,4 +1,4 @@
-##Not Genesis, but Pharaoh
+Not Genesis, but Pharaoh
 
 The executive order dropped November 24, 2025. I counted. "Accelerate" appears eight times. "Security" seventeen times. "Rest" zero. "Wisdom" zero.
 They called it Genesis.
