@@ -1,4 +1,4 @@
-# Systems and Spirit
+# Sprints and Spirit
 
 Where thirty years of managing sometimes impossible technical migrations meets the terrifying clarity of late-diagnosed ADHD, Quaker silence, and the question of whether machines can pray.
 
